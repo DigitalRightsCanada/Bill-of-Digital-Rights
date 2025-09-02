@@ -1,1 +1,100 @@
 # Bill-of-Digital-Rights
+
+Bill C-0101
+
+The Canadian Digital Freedom and Rights Act
+
+
+---
+
+Your Data. Your Rights. Your Future.
+
+
+---
+
+✅ You Own Your Data
+
+Your information is your property.
+
+Nobody can use, sell, or track it without your clear consent.
+
+
+✅ Fair Value
+
+If your data makes money, you get a fair share.
+
+
+✅ Transparency
+
+You have the right to know who has your data, why, and for how long.
+
+No more hidden fine print or dark tricks.
+
+
+✅ Control
+
+Download your data.
+
+Move it anywhere.
+
+Delete it whenever you want.
+
+
+✅ Protection
+
+Algorithms can’t secretly decide your future.
+
+No discrimination.
+
+No targeting kids.
+
+Extra safeguards for biometrics and brain data.
+
+
+
+---
+
+What Bill C-0101 Stops
+
+🚫 Forcing you to give up data for essential services.
+🚫 Secret shadow profiles.
+🚫 Selling your data without paying you.
+🚫 Manipulative consent tricks.
+🚫 Exploiting your weaknesses (addiction, gambling, manipulation).
+
+
+---
+
+Accountability That Counts
+
+Independent Digital Rights Ombudsperson.
+
+Digital Rights Tribunal with real enforcement powers.
+
+Penalties: up to $25M or 5% of global revenue.
+
+Serious violations: up to $50M + jail time.
+
+
+
+---
+
+Future-Proofed
+
+Covers today’s tech — and tomorrow’s.
+High-risk systems like facial recognition, predictive policing, child profiling, and brain-computer tech get strict rules.
+
+
+---
+
+Why It Matters
+
+Bill C-0101 makes sure the digital world works for people, not just corporations or the state.
+It protects our freedom, dignity, and fairness in the 21st century.
+
+
+---
+
+📢 Your data belongs to you.
+This is Canada’s chance to set the standard for the world.
+
